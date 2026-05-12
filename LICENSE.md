@@ -1,4 +1,4 @@
-# 
+# GarageBand for macOS updated Script: text-animation & compressor is the best GarageBand for macOS script, featuring text-animation and compressor. Safe, efficient, and optimized
 
 
 
